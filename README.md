@@ -1,2 +1,2 @@
 # LanguageAssistant
-Anu Kasireddy
+Anu K.
